@@ -9,12 +9,8 @@
   
 <p align="center">
 Hello I'm Two Time!!
-</p>
-<p align="center">
+Here are my links ↓↓ 
+<a href="https://dihdamon.straw.page/">strawpage!</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discordz!</a> <a href="https://coffeejeellyyy.atabook.org/">atabookk!</a> 
     
-.cool-heading {
-  color: #00e9ff;
-  text-shadow: 0 0 2px #00e9ff, 0 0 20px #0088ff;
-}
     
 </body>
