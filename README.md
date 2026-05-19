@@ -8,12 +8,13 @@
 <img src="twotime.png" alt="twotime">
   
 <p align="center">
-<i> </i>Hello I'm Two Time!! </i>
+Hello I'm Two Time!!
 </p>
 <p align="center">
- 
-<div class="spin-container">
-    <h1 class="spin-text">3D SPIN</h1>
-</div>
+    
+.cool-heading {
+  color: #00e9ff;
+  text-shadow: 0 0 2px #00e9ff, 0 0 20px #0088ff;
+}
     
 </body>
