@@ -8,7 +8,7 @@
 <img src="twotime.png" alt="twotime">
   
 <p align="center">
-Hello I'm Two Time!!
+Hello I'm Two Time or Bee or.. my other names!!
 </p>
 <p align="center">
 Here are my links ↓↓ 
