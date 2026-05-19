@@ -5,7 +5,7 @@
 </head>
 
 <body>
-<img src="twotime.png" alt="twotime">
+<img src="Untitled-1.png" alt="twotime">
   
 <p align="center">
 Hello I'm Two Time or Bee or.. my other names!!
