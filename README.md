@@ -11,9 +11,9 @@
 <i> </i>Hello I'm Two Time!! </i>
 </p>
 <p align="center">
-</p>
-    <div class="hover-container">
-        <h1 class="explosive-text">Hover Over Me</h1>
-    </div>
+ 
+<div class="spin-container">
+    <h1 class="spin-text">3D SPIN</h1>
+</div>
     
 </body>
