@@ -1,13 +1,13 @@
 <img src="Untitled-1.png" alt="twotime">
 
 <p align="center"> 
-${\color{#8BACC4}\textbf{Hi im twotime!! always welcome to interact! might be a bit awkward thouu...}}$ 
+${\color{#8BACC4}\textit{\textbf{Hi im twotime!! always welcome to interact! might be a bit awkward thouu...}}$ 
 </p>
 <p align="center"> 
-${\color{#8BACC4}\textbf{BYI!!! Usually whisper to interact cause i might not see it.. but if its obvious im intab then u can talk to me!}}$ 
+${\color{#8BACC4}\textit{\textbf{BYI!!! Usually whisper to interact cause i might not see it.. but if its obvious im intab then u can talk to me!}}$ 
 </p>
 <p align="center"> 
-${\color{#8BACC4}\textbf{Topics to talk abt to me maybe!! Transformers!(my favourites bee, im a newgen!) Typology! Brawl stars!(im a newgen.) or js look at my strawpage maybe!!}}$ 
+${\color{#8BACC4}\textit{\textbf{Topics to talk abt to me maybe!! Transformers!(my favourites bee, im a newgen!) Typology! Brawl stars!(im a newgen.) or js look at my strawpage maybe!!}}$ 
 </p>
 
 <p align="center">
