@@ -1,10 +1,6 @@
 <img src="Untitled-1.png" alt="twotime">
-  
-<span style="color: #729ac3; white-space: nowrap; word-break: keep-all;">
-    Hi im twotime!! always welcome to interact! might be a bit awkward thouu... 
-</span>
 
-
+<p align="center" style="color: #729ac3;"> Hi im twotime!! always welcome to interact! might be a bit awkward thouu... MOSTLY off tab! </p>
 <p align="center">
 Here are my links ↓↓ 
 </p>
