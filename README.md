@@ -1,9 +1,7 @@
 <img src="Untitled-1.png" alt="twotime">
 
 <p align="center"> 
-
 ${\color{#729ac3}\text{Hi im twotime!! always welcome to interact! might be a bit awkward thouu...}}$ 
-
 </p>
 
 <p align="center">
