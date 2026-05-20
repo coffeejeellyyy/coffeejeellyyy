@@ -8,7 +8,8 @@
 <img src="Untitled-1.png" alt="twotime">
   
 
-<p align="center"> ${\color{#729ac3}Hello I'm Two Time or Bee or.. my other names!! }$ </p>
+<p align="center"> ${\color{blue}BYI: Always‎ offtab‎ w2i,‎ INT‎ with‎ me‎ 1st‎,‎ im‎ not‎ too‎ social. }$ </p>
+
 
 <p align="center">
 Here are my links ↓↓ 
