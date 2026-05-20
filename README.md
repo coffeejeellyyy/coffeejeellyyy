@@ -1,6 +1,6 @@
 <img src="Untitled-1.png" alt="twotime">
 
-<p align="center"> ${\color{#729ac3Hi im twotime!! always welcome to interact! might be a bit awkward thouu...  }$ </p>
+<p align="center"> ${\color{#729ac3}Hi im twotime!! always welcome to interact! might be a bit awkward thouu...  }$ </p>
 <p align="center">
 Here are my links ↓↓ 
 </p>
