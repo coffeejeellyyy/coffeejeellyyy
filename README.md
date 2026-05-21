@@ -15,7 +15,7 @@ ${\color{#8BACC4}\textit{\textbf{ೀ DNI DOUBLES!!! m sorry i yume to cope, for 
 ${\color{#8BACC4}\textit{\textbf{U can talk to me about TF/TFA/TFP/TFRB, Brawl stars, Typology, Roblox (˶˃⤙˂˶) }}}$ 
 </p>
 <p align="center"> 
-${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in my strawpag!}}}$ 
+${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in my strawpag! ...PS! I always stay at the same spot!!}}}$ 
 </p>
 
 <p align="center"> ═════════════════════════════════════════════ </p>
