@@ -9,9 +9,14 @@ ${\color{#8BACC4}\textit{\textbf{Two time - Bee◝(ᵔᗜᵔ)◜he/they/xe , tur
 ${\color{#8BACC4}\textit{\textbf{(˶ˆᗜˆ˵) BYI!!! Really open to anything! , I dislike romantic jokes if ure not close꒰ྀི১ ໒꒱ིྀ }}}$ 
 </p>
 <p align="center"> 
-${\color{#8BACC4}\textit{\textbf{U can talk to me about TF/TFA/TFP/TFRB, Brawl stars, Typology or anything in my strawpag!}}}$ 
+${\color{#8BACC4}\textit{\textbf{ೀ DNI DOUBLES!!! m sorry i yume to cope, for my mental health pls atleast iwec if u want to! ><}}}$ 
 </p>
-
+<p align="center"> 
+${\color{#8BACC4}\textit{\textbf{U can talk to me about TF/TFA/TFP/TFRB, Brawl stars, Typology, Roblox (˶˃⤙˂˶) }}}$ 
+</p>
+<p align="center"> 
+${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in my strawpag!}}}$ 
+</p>
 
 <p align="center"> ═════════════════════════════════════════════ </p>
 <p align="center">
