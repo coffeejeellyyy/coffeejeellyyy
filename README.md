@@ -23,7 +23,15 @@ ${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in
 <p align="center"> 
 ${\color{#8BACC4}\textit{\textbf{this github was made for pt.. so if u see this from my discord.. hi. i.. am a pt chud. mcyt area. at teh corner. at a tree. ok.?}}}$ 
 </p>
- 
+ <p align="center"> ═════════════════════════════════════════════ </p>
+<p align="center"> 
+${\color{#8BACC4}\textit{\textbf{if i add u on dc n we dont talk much.. m sorry... i find it awkward to msg on discord but i also like the bond that it builts on being dc moots too!}}}$ 
+</p>
+
+ <p align="center"> 
+${\color{#8BACC4}\textit{\textbf{i might send a msg here n there  but ill mostly interact on ponytown physically.. m extroverted but im also really wary recently so im doubletaking all my msg...}}}$ 
+</p>
+
 <p align="center"> ═════════════════════════════════════════════ </p>
 <p align="center">
 <a href="https://dihdamon.straw.page/">strawpage!</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discordz!</a> <a href="https://coffeejeellyyy.atabook.org/">atabookk!</a> 
