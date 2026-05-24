@@ -20,7 +20,10 @@ ${\color{#8BACC4}\textit{\textbf{U can talk to me about TF/TFA/TFP/TFRB, Brawl s
 <p align="center"> 
 ${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in my strawpag! ...PS! I always stay at the same spot!!}}}$ 
 </p>
-
+<p align="center"> 
+${\color{#8BACC4}\textit{\textbf{this github was made for pt.. so if u see this from my discord.. hi. i.. am a pt chud. mcyt area. at teh corner. at a tree. ok.?}}}$ 
+</p>
+ 
 <p align="center"> ═════════════════════════════════════════════ </p>
 <p align="center">
 <a href="https://dihdamon.straw.page/">strawpage!</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discordz!</a> <a href="https://coffeejeellyyy.atabook.org/">atabookk!</a> 
