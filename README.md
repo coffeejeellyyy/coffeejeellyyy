@@ -9,6 +9,9 @@ ${\color{#8BACC4}\textit{\textbf{Two time - Bee◝(ᵔᗜᵔ)◜he/they/xe , tur
 ${\color{#8BACC4}\textit{\textbf{(˶ˆᗜˆ˵) BYI!!! Really open to anything! , I dislike romantic jokes if ure not close꒰ྀི১ ໒꒱ིྀ }}}$ 
 </p>
 <p align="center"> 
+${\color{#8BACC4}\textit{\textbf{EEEK I LOVE TALKING!! w2i in the image cuz i MIGHT not see it.. but i love interacting!!! yes yes yes!!!}}}$ 
+</p>
+<p align="center"> 
 ${\color{#8BACC4}\textit{\textbf{ೀ DNI DOUBLES!!! m sorry i yume to cope, for my mental health pls atleast iwec if u want to! ><}}}$ 
 </p>
 <p align="center"> 
