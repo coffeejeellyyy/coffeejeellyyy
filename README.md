@@ -3,7 +3,7 @@
 <p align="center"> ════════════════════════════════════ </p>
 
 <p align="center"> 
-${\color{#8BACC4}\textit{\textbf{Two time - Bee◝(ᵔᗜᵔ)◜he/they/xe , turning 14 (•ﻌ•)っ)3}}}$ 
+${\color{#8BACC4}\textit{\textbf{Two time - Bee◝(ᵔᗜᵔ)◜he/they/xe , JUST turned 14!! (•ﻌ•)っ)3}}}$ 
 </p>
 <p align="center"> 
 ${\color{#8BACC4}\textit{\textbf{(˶ˆᗜˆ˵) BYI!!! Really open to anything! , I dislike romantic jokes if ure not close꒰ྀི১ ໒꒱ིྀ }}}$ 
