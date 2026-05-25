@@ -32,7 +32,7 @@ ${\color{#667885}\textit{\textbf{if i add u on dc n we dont talk much.. m sorry.
 </p>
 
  <p align="center"> 
-${\color{#8BACC4}\textit{\textbf{i might send a msg here n there  but ill mostly interact on ponytown physically.. m extroverted but im also really wary recently so im doubletaking all my msg...}}}$ 
+${\color{#667885}\textit{\textbf{i might send a msg here n there  but ill mostly interact on ponytown physically.. m extroverted but im also really wary recently so im doubletaking all my msg...}}}$ 
 </p>
 
 <p align="center"> ═════════════════════════════════════════════ </p>
