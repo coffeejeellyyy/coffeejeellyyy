@@ -24,11 +24,11 @@ ${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in
 ${\color{#8BACC4}\textit{\textbf{this github was made for pt.. so if u see this from my discord.. hi. i.. am a pt chud. mcyt area. at teh corner. at a tree. ok.?}}}$ 
 </p>
  <p align="center"> 
-${\color{#667885}\textit{\textbf{i sleep in pt! if i leave its cause of my dad disabling it.. oke.. u can sit next to me idm ><}}}$ 
+${\color{#8BACC4}\textit{\textbf{i sleep in pt! if i leave its cause of my dad disabling it.. oke.. u can sit next to me idm ><}}}$ 
 </p>
  <p align="center"> ═════════════════════════════════════════════ </p>
 <p align="center"> 
-${\color{#8BACC4}\textit{\textbf{if i add u on dc n we dont talk much.. m sorry... i find it awkward to msg on discord but i also like the bond that it builts on being dc moots too!}}}$ 
+${\color{#667885}\textit{\textbf{if i add u on dc n we dont talk much.. m sorry... i find it awkward to msg on discord but i also like the bond that it builts on being dc moots too!}}}$ 
 </p>
 
  <p align="center"> 
