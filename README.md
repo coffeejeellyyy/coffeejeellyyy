@@ -43,5 +43,7 @@ ${\color{#667885}\textit{\textbf{wary recently so im doubletaking all my msg...}
 <a href="https://dihdamon.straw.page/">strawpage!</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discordz!</a> <a href="https://coffeejeellyyy.atabook.org/">atabookk!</a> 
 </p>
 <p align="center"> ════════════════════════════════════ </p>
- ‎ 
- <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=BRAWLERS!&extraCount=100&color=e3d9e2&labelColor=3692f3"/></a>
+ ‎
+ <p align="center">
+ <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=BRAWLERS!&extraCount=100&color=8BACC4&labelColor=3692f3"/></a>
+ </p>
