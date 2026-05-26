@@ -44,4 +44,4 @@ ${\color{#667885}\textit{\textbf{wary recently so im doubletaking all my msg...}
 </p>
 <p align="center"> ════════════════════════════════════ </p>
  ‎ 
- 
+ <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=BRAWLERS!&extraCount=100&color=e3d9e2&labelColor=3692f3"/></a>
