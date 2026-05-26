@@ -45,5 +45,5 @@ ${\color{#667885}\textit{\textbf{wary recently so im doubletaking all my msg...}
 <p align="center"> ════════════════════════════════════ </p>
  ‎
  <p align="center">
- <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=BRAWLERS!&extraCount=100&color=8BACC4&labelColor=3692f3"/></a>
+ <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=BRAWLERS!&extraCount=50&color=A4C2D3&labelColor=6C95BE"/></a>
  </p>
