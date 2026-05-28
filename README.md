@@ -24,7 +24,7 @@ ${\color{#8BACC4}\textit{\textbf{(Phighting, Forsaken, Dw, PPM +) or anything in
 ${\color{#8BACC4}\textit{\textbf{this github was made for pt.. so if u see this from my discord.. hi. i.. am a pt chud. mcyt area. at teh corner. at a tree. ok.?}}}$ 
 </p>
  <p align="center"> 
-${\color{#8BACC4}\textit{\textbf{i sleep in pt! if i leave its cause of my dad disabling it.. oke.. u can sit next to me idm ><}}}$ 
+${\color{#8BACC4}\textit{\textbf{i sleep in pt! if i leave its cause of my dad disabling it.. oke.. u can sit next to me idm >< (nocturnal sleepign sched! zzz 5am-6pm)}}}$ 
 </p>
  <p align="center"> ═════════════════════════════════════════════ </p>
 <p align="center"> 
