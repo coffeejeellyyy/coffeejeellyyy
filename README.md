@@ -46,7 +46,7 @@ ${\color{#667885}\textit{\textbf{(IM 145 NOT 146 SORRY!!)}}}$
 <p align="center"> ═════════════════════════════════════════════ </p>
 <p align="center">
 <a href="https://dihdamon.straw.page/">strawpage!</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discordz!</a> <a href="https://coffeejeellyyy.atabook.org/">atabookk!</a> 
-</p>
+</p> <a href="https://rentry.co/narafu">rentry!</a> 
 <p align="center"> ════════════════════════════════════ </p>
  ‎
  <p align="center">
