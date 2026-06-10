@@ -4,7 +4,7 @@
 </p>
 
 <p>
-<b><i>multifandom, i usually stay in the same spot near the mcyt area, or by the benches in jjba</i></b>
+<b><i>multifandom, i usually stay in the same spot near the mcyt area, or by the benches in jjba, ENG ONLY!! Bisaya-Tagalog semi ok but i suck ass</i></b>
 </p>
 
 <p>
