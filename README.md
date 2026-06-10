@@ -4,7 +4,7 @@
 </p>
 
 <p>
-<b><i>multifandom, i usually stay in the same spot near the mcyt area, or by the benches in jjba, english only</i></b>
+<b><i>multifandom, i usually stay in the same spot near the mcyt area, or by the benches in jjba, eng only</i></b>
 </p>
 
 <p>
