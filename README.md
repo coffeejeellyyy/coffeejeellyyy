@@ -12,7 +12,7 @@
 </p>
 
 <p>
-<b><i>sx/sp514 (sx5w6 sx1w2 spw4w3 , im aware of tritype rules this is for fun/specifics only..)</i></b>
+<b><i>sx/sp514 (sx5w6 sx1w2 sp4w3 , im aware of tritype rules this is for fun/specifics only..)</i></b>
 </p>
 ════════════════════════════════
 <a href="https://dihdamon.straw.page/">strawpage</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discord</a> <a href="https://coffeejeellyyy.atabook.org/">atabook</a> 
