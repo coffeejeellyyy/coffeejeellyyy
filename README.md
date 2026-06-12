@@ -20,6 +20,25 @@
 
 <br clear="left"/>
 
+<img src="Screenshot 2026-06-12 144836.png" alt="twotime" align="right" width="510" height="300" alt="Your Image Alt Text">
+<p>
+<b><i>content creators i watch: smii7y+, schlatt, vanoss, thecleric, cjya, grian, purpled, vtubers... </i></b>
+</p>
+
+<p>
+<b><i>im lowk larping lifesteal+uu ok.. leave me alone bradar. i like parrot tho. n im watching ls world.. shivers.</i></b>
+</p>
+
+<p>
+<b><i>i dont like talking first n if u talk first ill most likely reply unless im offtab.. i love talking tho</i></b>
+</p>
+
+<p>
+<b><i>fugo pannacotta fictkin, dni doubles sorry;;; </i></b>
+</p>
+════════════════════════════════
+
+<br clear="left"/>
 
  <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=dreams&extraCount=50&color=FFFFFF&labelColor=FFFFFF"/></a>
  
