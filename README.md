@@ -20,7 +20,7 @@
 
 <br clear="left"/>
 
-<img src="Screenshot 2026-06-12 144836.png" alt="twotime" align="right" width="510" height="300" alt="Your Image Alt Text">
+<img src="Screenshot 2026-06-12 144836.png" alt="twotime" align="right" width="400" height="300" alt="Your Image Alt Text">
 <p>
 <b><i>content creators i watch: smii7y+, schlatt, vanoss, thecleric, cjya, grian, purpled, vtubers... </i></b>
 </p>
@@ -36,7 +36,7 @@
 <p>
 <b><i>fugo pannacotta fictkin, dni doubles sorry;;; </i></b>
 </p>
-════════════════════════════════
+═══════════════════════════════
 
 <br clear="left"/>
 
