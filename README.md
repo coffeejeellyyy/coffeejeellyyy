@@ -24,11 +24,11 @@
 </p>
 
 <p>
-<b><i>im lowk larping lifesteal+uu ok.. leave me alone bradar. i like parrot tho. n im watching ls world.. shivers.</i></b>
+<b><i>im lowk larping lifesteal+uu ok.. n i guess jjba but i rather research than watch.. sorry..;;; ls+uu full larp , jjba half larp dont axe me pls</i></b>
 </p>
 
 <p>
-<b><i>i dont like talking first n if u talk first ill most likely reply unless im offtab.. i love talking tho</i></b>
+<b><i>i dont like talking first n if u talk first ill most likely reply unless im offtab.. i love talking tho.. m usually lonely(auraloss)</i></b>
 </p>
 
 <p>
