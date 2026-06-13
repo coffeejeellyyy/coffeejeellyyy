@@ -34,8 +34,6 @@
 <p>
 <b><i>fugo pannacotta fictkin, dni doubles sorry;;; </i></b>
 ═══════════════════════════════
-
-
 <a href="https://dihdamon.straw.page/">strawpage</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discord</a> <a href="https://coffeejeellyyy.atabook.org/">atabook</a> 
 <a href="https://rentry.co/narafu">rentry</a> 
 
