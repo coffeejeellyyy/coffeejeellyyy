@@ -1,6 +1,6 @@
 <img src="Screenshot 2026-06-11 022209.png" alt="twotime" align="left" width="500" alt="Your Image Alt Text">
 <p>
-<b><i>twotime/bee/fugo/any names u want to use .. he/they/xe .. newly 14</i></b>
+<b><i>twotime/bee/fugo/any names u want to use .. he/they/xe .. newly 14 , ALWAYS c+h! c+hcomf ok?</i></b>
 </p>
 
 <p>
