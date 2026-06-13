@@ -8,7 +8,7 @@
 </p>
 
 <p>
-<b><i>if im not talking im almost always daydreaming, it takes up all my time..</i></b>
+<b><i>if im not talking im almost always daydreaming, it takes up all my time.. (or researching if im motivated)</i></b>
 </p>
 
 <p>
