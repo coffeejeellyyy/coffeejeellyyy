@@ -34,10 +34,13 @@
 <p>
 <b><i>fugo pannacotta fictkin, dni doubles sorry;;; </i></b>
 ═══════════════════════════════
-</p>
 
-<br clear="left"/>
 
 <a href="https://dihdamon.straw.page/">strawpage</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discord</a> <a href="https://coffeejeellyyy.atabook.org/">atabook</a> 
-<a href="https://rentry.co/narafu">rentry</a> &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=dreams&extraCount=50&color=FFFFFF&labelColor=FFFFFF"/></a> 
+<a href="https://rentry.co/narafu">rentry</a> 
+
+</p>
+<br clear="left"/>
+
+<a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=dreams&extraCount=50&color=FFFFFF&labelColor=FFFFFF"/></a> 
  
