@@ -8,11 +8,11 @@
 </p>
 
 <p>
-<b><i>if im not talking im almost always daydreaming, it takes up all my time.. (or researching if im motivated)</i></b>
+<b><i>if im not talking im almost always daydreaming, it takes up all my time.. (or researching)</i></b>
 </p>
 
 <p>
-<b><i>sx/sp514 (sx5w6 sx1w2 sp4w3 , im aware of tritype rules, id rather go against it as the theory and study of tritype should be expanded rather than restricted.)</i></b>
+<b><i>sx/sp514 (sx5w6 sx1w2 sp4w3 , im aware of tritype rule , id rather go against it as the study of tritype should be expanded rather than restricted.)</i></b>
 </p>
 ════════════════════════════════
 
