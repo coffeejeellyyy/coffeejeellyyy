@@ -12,7 +12,7 @@
 </p>
 
 <p>
-<b><i>sx/sp514 (sx5w6 sx1w2 sp4w3 , im aware of tritype rules this is for fun/specifics only..)</i></b>
+<b><i>sx/sp514 (sx5w6 sx1w2 sp4w3 , im aware of tritype rules, id rather go against it as the theory and study of tritype should be expanded rather than restricted.)</i></b>
 </p>
 ════════════════════════════════
 
