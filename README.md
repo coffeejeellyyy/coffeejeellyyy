@@ -41,4 +41,5 @@
 <br clear="left"/>
 
 <a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=dreams&extraCount=50&color=FFFFFF&labelColor=FFFFFF"/></a> 
+DONT COVERME DONT COVER ME DONT OCOVER ME UNLESS UR OOMF/I KNWO YOU/SEE(or interact) YOU A LOT. DONT PAKING COVER ME DONT COVEM RE DONT COVER ME. GENUINELY DONT COVER ME. ILL KILL YOU ALL. /silly haha NO ITSN OT IM GONNA EXECUTE EVEROYNE D ONT COVER ME. ok i stay in the tree near rainworld area n mcyt. dont. cover. me. ill execute u all.
  
