@@ -12,7 +12,7 @@
 </p>
 
 <p>
-<b><i>sx/sp514 (sx5w6 sx1w2 sp4w3 , im aware of tritype rule , id rather go against it as the study of tritype should be expanded rather than restricted.)</i></b>
+<b><i>sp/sx594 5w4 (old tritypes (newest to oldest): sx514 sx154 sx145 sx146 sx416)</i></b>
 </p>
 ════════════════════════════════
 
