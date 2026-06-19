@@ -12,7 +12,7 @@
 </p>
 
 <p>
-<b><i>sp/sx594 5w4 (old tritypes (newest to oldest): sx514 sx154 sx145 sx146 sx416)</i></b>
+<b><i>sx/sp594 5w4 ( sx5 sp9 sp4 , old tritypes (newest to oldest): sx514 sx154 sx145 sx146 sx416)</i></b>
 </p>
 ════════════════════════════════
 
