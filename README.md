@@ -12,7 +12,7 @@
 </p>
 
 <p>
-<b><i>sx/sp514 5w4 ( sx5 sx1 sp4 , old tritypes (newest to oldest): sx154 sx145 sx146 sx416 , im unsure if im 594 or 514...)</i></b>
+<b><i>sx/sp514 (unsure if im sp/sx or 594 thou!) i always cosplay enneagrams, yes im that sx5 in the mcyt area heh.heh.know me. im cool. ok sory.</i></b>
 </p>
 ════════════════════════════════
 
