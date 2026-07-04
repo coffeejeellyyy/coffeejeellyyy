@@ -8,7 +8,7 @@
 </p>
 
 <p>
-<b><i>if im not talking im almost always daydreaming, it takes up all my time.. make sure to check my alt for my status! if playing i might reply super slow</i></b>
+<b><i>if im not talking im almost always daydreaming, ibut make sure to check my alt for my status! if playing i might reply super slow</i></b>
 </p>
 
 <p>
