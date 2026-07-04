@@ -12,7 +12,7 @@
 </p>
 
 <p>
-<b><i>sx/sp514 (unsure if im sp/sx thou!) i always cosplay enneagrams, yes im that sx5 in the mcyt area heh.heh.know me. im cool. ok sory.</i></b>
+<b><i>sx/sp514 (unsure if im sp/sx thou!) i always cosplay enneas, yes im that sx5/sp1 in the mcyt area heh.heh.know me. ok sory.</i></b>
 </p>
 ════════════════════════════════
 
