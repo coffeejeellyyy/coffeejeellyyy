@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="rop.png" alt="twotime" align="center" width="1000">>
+<img src="rop.png" alt="twotime" align="center" width="1000">
 </p>
 
 <p align="center">
