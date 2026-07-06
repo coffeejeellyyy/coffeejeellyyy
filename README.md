@@ -28,7 +28,7 @@
 </p>
 
 <p>
-<b><i>i dont like talking first n if u talk first ill most likely reply unless im offtab.. i love talking tho.. m usually lonely(auraloss)</i></b>
+<b><i>i dont like talking first n if u talk first ill most likely reply unless im offtab.. i love talking tho.. m usually lonely(auraloss) but i LOVE mooting!! yes yes moot me nyaaa hehe <i></b>
 </p>
 
 <p>
