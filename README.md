@@ -1,4 +1,4 @@
-<img src="Screenshot 2026-06-11 022209.png" alt="twotime" align="left" width="500" alt="Your Image Alt Text">
+<img src="Screenshot 2026-06-11 022209.png" alt="twotime" align="left" width="500">
 <p>
 <b><i>twotime/bee/fugo/any names u want to use .. he/they/xe .. newly 14 , ALWAYS c+h! c+hcomf ok?</i></b>
 </p>
@@ -18,7 +18,7 @@
 
 <br clear="left"/>
 
-<img src="Screenshot 2026-06-12 144836.png" alt="twotime" align="right" width="500" alt="Your Image Alt Text">
+<img src="Screenshot 2026-06-12 144836.png" alt="twotime" align="right" width="500">
 <p>
 <b><i>content creators i watch: smii7y+, schlatt, vanoss, thecleric, cjya, grian, purpled, vtubers... </i></b>
 </p>
