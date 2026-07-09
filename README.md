@@ -40,9 +40,12 @@
 <p align="center">
 <a href="https://dihdamon.straw.page/">strawpage</a> <a href="https://discordid.netlify.app/?id=747445067169529938">discord</a> <a href="https://coffeejeellyyy.atabook.org/">atabook</a> 
 <i>rentry is gone becuz the creator is a zionist!!!<i>
+
+
 </p>
 
 <p align="center">
 <b><i>i use ms paint to draw, i dont put much effort into my githubs, they could be cuter but theyre cute enough.. i draw w a mouse, more serious art js dm me if u wanna see...</i></b>
 </p>
- 
+
+  </i></b>hits.. isnt currently working..</i></b>
