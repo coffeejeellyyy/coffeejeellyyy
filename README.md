@@ -48,5 +48,5 @@
 <b><i>i use ms paint to draw, i dont put much effort into my githubs, they could be cuter but theyre cute enough.. i draw w a mouse, more serious art js dm me if u wanna see...</i></b>
 </p>
 <p align="center">
-<i><b>hits.. isnt currently working..</i></b>
+<i><b>hits.. sometimes works..</i></b>
 </p>
