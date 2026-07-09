@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<a href="https://hits.sh/github.com/fcoolers/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?label=dreams&extraCount=50&color=FFFFFF&labelColor=FFFFFF"/></a> 
+<a href="https://hits.sh/github.com/coffeejeellyyy/"><img alt="Hits" src="https://hits.sh/github.com/coffeejeellyyy.svg?style=flat-square&label=dreams&extraCount=50&color=ffffff&labelColor=ffffff"/></a>
 </p>
 
 <p align="center">
