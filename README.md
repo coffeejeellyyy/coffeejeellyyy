@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-<b><i>no my name isnt sx5.. im twotime/bee/fugo/any names u want to use .. he/they/xe .. 14, dni below 10 dniuid above 19</i></b>
+<b><i>no my name isnt sx5.. im twotime/bee/fugo/any names u want to use .. he/they/xe .. 14, dni below 10 dniuid above 20</i></b>
 </p>
 
 <p align="center">
